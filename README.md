@@ -12,4 +12,3 @@ Você pode entrar em contato comigo!💌
 
 @analauramartins2510@gmail.com 
 
-![]( https://tenor.com/pt-BR/view/dancing-cat-jump-cat-cat-cute-cat-kitten-gif-12685105359798586488 ) 
